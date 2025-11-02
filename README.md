@@ -1,0 +1,1 @@
+Vyvoj Anglicko Slovenskeho slovnika.
